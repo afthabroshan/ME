@@ -91,7 +91,7 @@ An intelligent system that allows users to **search for specific words inside au
 ## 📫 Connect with Me
 
 - Email: afthabroshan@gmail.com
-- LinkedIn: [Afthab Roshan](www.linkedin.com/in/afthab-roshan)
+- LinkedIn: [Afthab Roshan](https://www.linkedin.com/in/afthab-roshan)
 
 ---
 
